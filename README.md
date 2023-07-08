@@ -1,3 +1,4 @@
-- 👋 Hi, I’m @DevSasuke1689
+- 👋 Hi, I’m @hHavocPlugins
 - I am Creator plugin people of minecraft !
-- Discord: https://discord.gg/9aTx4Q35hD
+- Discord: https://discord.gg/GyC9CbZThq
+- Discord Private: Havoc#5222
